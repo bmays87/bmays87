@@ -1,1 +1,1 @@
-I'm coding for the future market place — one where distributed, localized manufacturing reshapes how we build, create, and innovate. My goal is to design CNC systems with intuitive, user friendly interfaces that empower makers of all skill levels. 
+I'm coding for the future market place — one where distributed, localized manufacturing reshapes how we build, create, and innovate. My goal is to design CNC systems with intuitive, user friendly interfaces that empower makers of all skills. 
