@@ -8,6 +8,6 @@ I enjoy paintball and snowboarding when I am allowed outside the house.
 
 One day when I am very wealthy I would like to focus my attention on flight, especially personal VTOL aircraft.  
 
-I am also motivated to follow an old dream of realizing fully autostereoscopic halographic displays.
+I am also motivated to follow an old dream of realizing fully autostereoscopic holographic displays.
 
 ...but dreams are dreams until we have the time and money to make them reality.  
